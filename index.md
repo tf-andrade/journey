@@ -1,3 +1,8 @@
+### Work Hard, Get Ready, Be Kind, and Fear the Lord!
+ -Prov. 31
+ 
+ ---
+
 #### My Vision & Principles, for personal and professional outcomes
 
 In the ever-evolving landscape of our world, the path to success is paved with the enduring values of Integrity and Transparency. These are the guiding stars of my journey. They remind me that honesty in our actions and clarity in our intentions form the bedrock of trust and respect. In every step I take, let me be guided by the unwavering commitment to do what is right, not just what is easy.
